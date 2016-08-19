@@ -9,6 +9,6 @@ will be consequences.
 
 Anuj - Jscrip, Html, CSS, php
 
-Riley - learn to use photoshop
+Riley - learn to use illustrator
 
 Joon - Doesnt need to learn anything
